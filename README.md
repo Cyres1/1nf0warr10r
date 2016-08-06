@@ -1,1 +1,3 @@
 # 1nf0warr10r
+
+ALL RIGHTS RESERVED 
